@@ -6,3 +6,5 @@
 - 📫 How to reach me: [Twitter](https://twitter.com/mmanzanna)
 - 😄 Pronouns: She/Her
 - 🌍 Speaks English, Spanish, French and Italian
+
+My avatar represent the main character of "Kiki's delivery service"
