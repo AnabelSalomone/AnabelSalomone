@@ -7,4 +7,4 @@
 - 😄 Pronouns: She/Her
 - 🌍 Speaks English, Spanish, French and Italian
 
-My avatar represent the main character of "Kiki's delivery service"
+My avatar represents the main character of "Kiki's delivery service"
