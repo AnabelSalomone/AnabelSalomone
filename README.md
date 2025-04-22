@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 This is my old github account, now you can find me as [Manzanabel](https://github.com/Manzanabel)
 
 - 🌱 I’m currently learning python and deepening my knowdlege of JS
 - 🤔 I’m looking for help (and ideally a mentor) with python
